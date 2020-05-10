@@ -2,4 +2,4 @@
 
 Jessica C. Peterson
 
-![sexy](SC_7762-1.jpg)
+![sexy](https://raw.githubusercontent.com/justgage/best-mom/master/DSC_7762-1.jpg)
